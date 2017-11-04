@@ -1,1 +1,0 @@
-# Ski-Run-Rater-S1
